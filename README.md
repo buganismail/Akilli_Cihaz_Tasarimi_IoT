@@ -2,4 +2,4 @@
 
 1-2 Soru / Cevap
 
-3-proje / Cevap şeklinde okuyunuz
+3-proje / Cevap şeklinde pdf'leri okuyunuz
